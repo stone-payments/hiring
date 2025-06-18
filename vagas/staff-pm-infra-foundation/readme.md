@@ -29,6 +29,7 @@ Somos parte da Stone Tech, e acreditamos que infraestrutura, quando tratada como
 ---
 
 🧠 Não é pra você? Marca alguém que combina com esse desafio.
+
 💬 Ficou com dúvidas ou curiosidades? Comenta aqui — vamos trocar ideia!
 
 #InfraAsAProduct #ProductManager #DeveloperExperience #IDP #StoneTech #PlataformaInterna #VemPraStone

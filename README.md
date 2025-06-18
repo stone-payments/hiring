@@ -13,7 +13,11 @@ E mais orgulho ainda de botar isso em prática. Todos os dias.
 
 Aqui é onde a tecnologia encontra propósito.
 
-A **Stone** nasceu para transformar o setor financeiro brasileiro — e crescemos porque colocamos tecnologia no centro de tudo. Mas a verdadeira força vem das pessoas que constroem isso com a gente todos os dias.
+A **Stone** nasceu com o propósito de ser protagonista na transformação da indústria de pagamentos, lutando para oferecer as melhores soluções para quem empreende no Brasil.
+
+Pensando nisso, construímos a Stone Tech! A junção dos times de tecnologia Stone Co. que reconhecem o potencial empreendedor de cada brasileiro.
+
+Por aqui, temos todas as inovações e tecnologias de ponta da Stone, Pagar.me, Ton e Vitta, com uma galera referência no mercado de tecnologia, em um ambiente descontraído, repleto de desafios, oportunidades, flexibilidade, teamplay e desenvolvimento contínuo.
 
 ## 💚 Por que trabalhar aqui?
 
